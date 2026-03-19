@@ -4,3 +4,6 @@
 
 
 ![wp1841039](https://github.com/user-attachments/assets/0db55905-fb15-4aed-98b6-e98e1123866e)
+
+
+![Fuck-You-Backgrounds-Desktop](https://github.com/user-attachments/assets/265a94f7-5104-4821-87aa-14589aa4c8c5)
